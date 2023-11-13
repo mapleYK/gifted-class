@@ -6,4 +6,6 @@
 打字練習：https://zty.pe/  
 
 一些免費的學習資源網站:
-https://tw.alphacamp.co/blog/learn-python
+https://tw.alphacamp.co/blog/learn-python  
+
+google doodle 遊戲(指示兔子吃蘿蔔):https://www.google.com/logos/2017/logo17/logo17.html?hl=zh-TW  
